@@ -1,0 +1,1 @@
+# french_euro_manifestos
